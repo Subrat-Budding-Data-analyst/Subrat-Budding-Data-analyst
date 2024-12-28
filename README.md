@@ -5,7 +5,7 @@
 
 😮‍💨Numbers whisper secrets to me, and I'm learning all the cool tools (Power BI, Python, SQL, and yes, even Excel!) to unlock their stories.
 
-  Want to see how I can translate data into actionable insights?
+🔺 Want to see how I can translate data into actionable insights?
 
 👉🏿Check out my portfolio! 
 
