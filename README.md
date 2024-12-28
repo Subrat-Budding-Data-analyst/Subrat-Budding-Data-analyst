@@ -14,3 +14,5 @@
 💎Bonus!  I used to be a marketing pro, so I understand the business side too.
 
 ## LET'S CONNECT
+
+🟢Linkedin: [Click Here To Know More About Me](https://www.linkedin.com/in/subrat-hazra)
